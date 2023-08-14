@@ -1,1 +1,0 @@
-# JasonBeBrilliant-god.github.io
